@@ -1,0 +1,1 @@
+# ctd-2bi-bancodedados-a9-checkpoint1
